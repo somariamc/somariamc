@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Twitter: [@somaria_mc](https://twitter.com/somaria_mc)
 <!--
 **somariamc/somariamc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
